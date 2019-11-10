@@ -1,0 +1,3 @@
+Det var på Fetsund skole det begynte. Inspirert av William Farres arbeide ved Møllergaten Skole i Christiania, samlet lærer Fridtjof Dørumsgaard de «spillbare» guttene på skolen sammen.
+
+Den mangeårige dirigent for «Øyamusikken», Petter Berntsen, ble kontaktet. Sammen med Anton Buvik, P. Berntsens svoger og F. Dørumsgaards nabo, startet de opp. Det var et pionérarbeide som ble utført av dirigent og styre vinteren 1921- 1922 i øvelseslokalet «Tømmerdireksjonens hvilebrakke» på Lund. Det fantes ingen andre guttemusikkorps på Romerike, og veien til Christiania var lang den gangen.
